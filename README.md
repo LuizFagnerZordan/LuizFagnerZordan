@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a lot of things, every day I learn somenthing new rs
 - 💞️ I’m looking to collaborate on my company 
 - 📫 How to reach me - luiz.zordan@blip.ai
-- 😄 Pronouns: he/her
+- 😄 Pronouns: he/him
 - ⚡ Fun fact:  The fact that I don't like Luiz in my name is because I think it's too serious, too heavy lol
 
 And the funny fact is that there is a generation of `Luiz` in my family... my great-grandmother, my grandmother, my uncles, myself and my younger cousins ​​have a generation that has `Luiz` in their name - but it doesn't stop there. oh - all of Luiz, including me, have worked at the cemetery lol
